@@ -1,0 +1,2 @@
+# MOZIK
+music  NFT platform
